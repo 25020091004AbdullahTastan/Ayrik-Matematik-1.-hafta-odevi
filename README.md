@@ -1,0 +1,1 @@
+# Ayrik-Matematik-1.-hafta-odevi
